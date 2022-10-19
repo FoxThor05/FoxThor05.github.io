@@ -1,1 +1,1 @@
-
+Bienvenidos, camaradas soviéticos.
