@@ -1,3 +1,3 @@
-Bienvenidos, camaradas soviéticos.
+# ユリセス・サンス・ベロ
 
-Hoy empieza nuestro camino hacia la libertad! Hacia la independencia económica!
+<img src="communism.jpg" width="300" height="167">
